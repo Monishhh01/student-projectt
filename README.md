@@ -1,2 +1,2 @@
 # student-projectt
-iam interested in progam
+iam interested in progamm
